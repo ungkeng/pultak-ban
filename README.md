@@ -1,1 +1,0 @@
-# pultak-ban
